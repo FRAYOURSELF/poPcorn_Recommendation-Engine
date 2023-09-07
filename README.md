@@ -80,7 +80,7 @@ For support, email mailtosahil18@gmail.com.
 
 ## I'm a student at Bits Pilani Goa Campus!!
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2022 Goals: Learn more about web3
+- 🥅 2023 Goals: Learn more about web3
 - ⚡ Fun fact: I like to draw and play guitar/drums
 
 ### Connect with me:
